@@ -15,8 +15,11 @@ I’m a **Young full-stack developer** and **Young photographer**, passionate ab
 
 ## 📫 Contact Me  
 📧 Email: jrmhpro@gmail.com
+
 🔗 Portfolio: À venir 
+
 📷 Instagram: https://www.instagram.com/p.jrmh0/
+
 💼 LinkedIn: https://www.linkedin.com/in/jérémy-hordé-4u730i26/
 
 ---
